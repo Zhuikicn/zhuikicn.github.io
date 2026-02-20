@@ -1,2 +1,2 @@
-# zhuikicn.github.io
-Personal Profile
+My name: Xuhang Chen
+My mail: chenxh366@mail2.sysu.edu.cn
